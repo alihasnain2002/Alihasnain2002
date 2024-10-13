@@ -15,7 +15,6 @@
 	
 💸 Worked with 50+ clients all over the world with design and development.
 
-📧 Book free 1v1 consultation https://linktr.ee/hammadbinnadeem
  
 <h2>Tech Stack</h2>
 
