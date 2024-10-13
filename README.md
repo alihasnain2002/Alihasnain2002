@@ -9,11 +9,11 @@
 - [Mubashar Nouman](https://www.youtube.com/channel/UC6lUUWMyuiibsJzV8BNdaEQ)
  -->
 
-🤵 Founder & CEO of @techviochats @internee.pk 🤖
+🤵 Freelancer at Upwork  🤖
 	
-👨‍💻 AI Engineer CargoAI
+👨‍💻 Android java developer || Ai engineer
 	
-💸 Help 80+ Clients via Generative AI & Automation
+💸 Worked with 50+ clients all over the world with design and development.
 
 📧 Book free 1v1 consultation https://linktr.ee/hammadbinnadeem
  
